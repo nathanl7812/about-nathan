@@ -17,6 +17,7 @@ My hobbys are I **Love** to ride bikes.
 Foods I like
 * sushi
 * steak 
+    * Meat lover
 * Tacos
 ---
 Click [here](https://sites.google.com/a/hstat.org/nathanl7812sep11/) for a link to my portfolio.
